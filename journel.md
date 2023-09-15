@@ -27,3 +27,15 @@ i did code combat
 i worked on my journel
 # sep 8, 2023 
 i worked code combat
+# Sep 11, 2023
+monday we did 9/11 
+# Sep 12, 2023
+code combat
+# Sep 13, 2023
+code combat
+# Sep 14, 2023
+working the lights
+# Sep 14, 2023
+code combat
+# Sep 15, 2023
+Code combat
