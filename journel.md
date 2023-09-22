@@ -35,7 +35,18 @@ code combat
 code combat
 # Sep 14, 2023
 working the lights
-# Sep 14, 2023
+# Sep 15, 2023
+Did a few songs
+# Sep 18, 2023
+i helped kayden with journel
+# Sep 19, 2023 
+code combat
+# Sep 20, 2023
+code combat
+# Sep 21, 2023
+code combat
+# Sep 22, 2023
+code combat
 code combat
 # Sep 15, 2023
 Code combat
