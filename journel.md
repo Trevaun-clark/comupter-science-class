@@ -48,5 +48,13 @@ code combat
 # Sep 22, 2023
 code combat
 code combat
-# Sep 15, 2023
+# Sep 25, 2023
 Code combat
+# Sep 26, 2023
+i did film
+# Sep 27, 2023
+i helped kayden with journel
+# Sep 28, 2023
+code combat
+# sep 29, 2023
+code comabt
