@@ -58,3 +58,12 @@ i helped kayden with journel
 code combat
 # sep 29, 2023
 code comabt
+# Oct 2, 2023
+code combat
+# Oct 3, 2023 
+cleaned back room
+# Oct 4, 2023
+cleaned back room
+# Oct 5, 2023
+cleaaning back room
+
